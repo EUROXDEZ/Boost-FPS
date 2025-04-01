@@ -1,7 +1,8 @@
 # Boost-FPS
 **FOR SKIBIDI**
 
-![เบียวแตก](https://github.com/user-attachments/assets/0f7f1da7-34e2-4bf4-ba54-032347690e9c)
+![blood](https://github.com/user-attachments/assets/e69e556f-1c30-402f-ac16-513ae30b739a)
+
 
 **เบียวจัด**
 
